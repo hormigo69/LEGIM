@@ -1,6 +1,6 @@
 # LEGIM
 
-https://www.notion.so/anthq/La-Enciclopedia-Gal-ctica-de-la-Industria-Musical-bbe895d7a13741a2a5f9bbcb865e10b9?d=264fab77-85a5-4b89-942e-4aaa080b5532#64cc475719bc416f960898d4943fa634
+[Link](https://www.notion.so/anthq/La-Enciclopedia-Gal-ctica-de-la-Industria-Musical-bbe895d7a13741a2a5f9bbcb865e10b9?d=264fab77-85a5-4b89-942e-4aaa080b5532#64cc475719bc416f960898d4943fa634
 
 **La Enciclopedia Galáctica de la Industria Musical** (LEGIM) es una iniciativa para poner en contexto toda la información que se recoge en los podcast de [Subterfuge Radio](https://www.subterfugeradio.com/) "[Simpatía por la industria musical](https://www.subterfugeradio.com/programacion/simpatia-por-la-industria-musical/)", en los que se entrevista a destacados personajes de la Industria Musical en España con el objeto de poner puntos de vista, experiencia y perspectiva de futuro en el negocio discográfico.
 
